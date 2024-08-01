@@ -8,5 +8,5 @@
 
 #### No dudes en contactarme
 - [ Linkein ] ( www.linkedin.com/in/farkin-coquil-olivera-6a7019293 )
-- [ Email ] : ( farkin.coquil.olivera@gmail.com )
+- [ Email ] ( farkin.coquil.olivera@gmail.com )
 
