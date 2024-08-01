@@ -6,7 +6,7 @@
 
 > Actualmento trabajo en proyectos para reforzar mis habilidades técnicas, observando e investigando nuevas cosas por aprender, asi como tambien encontrando y resolviendo nuevos bugs 😮‍💨🥳😁
 
-# No dudes en contactarme
+### No dudes en contactarme
 - [ Linkein ] (www.linkedin.com/in/farkin-coquil-olivera-6a7019293)
 - [ Email ] : farkin.coquil.olivera@gmail.com
 
